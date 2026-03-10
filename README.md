@@ -1,5 +1,8 @@
 <span id="en"><a href="#ru">🇷🇺</a> &nbsp;&nbsp;&nbsp;<a href="#en">🇺🇸</a> &nbsp;&nbsp;&nbsp;</span><br><br>
 
+https://www.youtube.com/watch?v=ZHIYL-_FjJU
+
+## ☝️ WATCH THIS VIDEO BEFORE YOU START ☝️
 
   [Stolbitsa](https://bg.wikipedia.org/wiki/%D0%A1%D1%82%D1%8A%D0%BB%D0%B1%D0%B8%D1%86%D0%B0%D1%82%D0%B0) is a method invented in early 20th century by Bulgarian composer and music teacher [Boris Trichkov](https://bg.wikipedia.org/wiki/%D0%91%D0%BE%D1%80%D0%B8%D1%81_%D0%A2%D1%80%D0%B8%D1%87%D0%BA%D0%BE%D0%B2)
   The word "stolbitsa" means "staircase" in Bulgarian. The 12 notes of the octave are presented as 13 steps of a staircase (the first note is repeated twice) and are displayed as bars of different length and color.
